@@ -4,4 +4,5 @@
 - 🍢 M5Stick Enjoyer 
 - 🧑🏻‍💻 Begineer in Programmig.
 - 📳 also Theme Maker!!!
+- Discord: sebaxtian_19
 ### tiktok.com/@zackjuniorx19
